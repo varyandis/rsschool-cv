@@ -1,1 +1,1 @@
-# rsschool-cv
+https://varyandis.github.io/rsschool-cv/cv
